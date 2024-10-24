@@ -1,4 +1,4 @@
-- 👋 Hi, I’m HanyiLou
+- 👋 Hi, I’m Hanyi Lou
 - 👀 I’m interested in all things cute and delicious. I love seeking out new cuisines and experimenting with cooking.
 - 🌱 I’m currently learning a bit of everything that catches my interest—it’s broad and varied, so I can’t pin it down to one specific area!
 - 💞️ I’m looking to collaborate on projects that involve creativity, technology, or anything that combines fun with functionality.
